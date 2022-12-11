@@ -89,3 +89,141 @@
  In the end, the Webminds are defeated and the invasion is stopped. The internet is saved, and humanity is safe from the alien threat.
 
  Francisco and his team are hailed as heroes, and they are celebrated for their bravery and determination in the face of overwhelming odds. They have saved the internet and protected humanity, and they will be remembered as true champions of freedom and innovation.
+
+# season 4
+
+ In the season 4 of the anime, Francisco is an old man, and he knows that his days are numbered. He has been struggling with a chronic cough, and he knows that his time is running out.
+
+ But Francisco is not ready to give up just yet. He has spent his entire life protecting the internet and fighting for freedom and innovation, and he is determined to leave a lasting legacy.
+
+ To that end, Francisco begins to train his pupil, a young man named The Pony, to take over Frantech and continue the fight against those who would seek to do harm to the internet. The Pony is a brilliant young man, and he possesses the skills and determination necessary to become a true Frantech Stallion.
+
+ Under Francisco's guidance, The Pony begins to learn the ins and outs of Frantech and the internet. He trains tirelessly, honing his skills and preparing to take on the mantle of leadership.
+
+ As Francisco's health continues to decline, he knows that the time has come for him to step aside and let The Pony take over. And with a heavy heart, he passes the reins of Frantech to The Pony, confident that the young man will continue the fight and protect the internet for generations to come.
+
+ In the end, Francisco passes away peacefully, surrounded by his loved ones and knowing that his legacy is in good hands. The Pony takes up the mantle of leadership at Frantech, determined to continue the fight and protect the internet for all time.
+
+ As Frantech continues to operate under The Pony's leadership, the company begins to face financial challenges. Google Cloud and Amazon AWS have both continued to grow and expand, and they have once again become major players in the hosting industry.
+
+ Frantech finds itself struggling to compete, and The Pony is faced with the difficult task of keeping the company afloat. He is unsure of his skills and abilities, and he is plagued by doubts about his ability to lead Frantech to success.
+
+ But The Pony is not one to give up easily. He is determined to prove himself and to keep Frantech at the top of the hosting industry. With the help of his team and some unexpected allies, he sets out to build the best hosting infrastructure the world has ever seen.
+
+ The Pony and his team work tirelessly to design and implement the most advanced and secure hosting platform in the world. They face many challenges along the way, but they never give up, and they are determined to succeed.
+
+ In the end, their efforts pay off. Frantech's new hosting platform is a massive success, and the company once again becomes the top choice for businesses and individuals who want the best in hosting services.
+
+ The Pony has proven himself to be a worthy successor to Francisco, and he continues to lead Frantech to new heights of success and innovation. The internet is once again safe and secure, thanks to the efforts of The Pony and his team at Frantech.
+
+# season 5
+
+ In the season 5 of the anime, The Pony meets a young woman named Sarah who is a talented hacker and cyberpunk. Sarah is a fierce and independent woman, and she has a reputation as one of the best hackers in the world.
+
+ The Pony is immediately drawn to Sarah, and the two of them begin to participate in various hacking challenges together. They work as a team to take down malicious DDos infrastructure and protect the internet from those who would seek to do it harm.
+
+ As they work together, The Pony and Sarah develop a playful and competitive relationship. They are constantly pushing each other to be better and to achieve more, and they enjoy the thrill of the challenge.
+
+ But as time goes on, The Pony realizes that his feelings for Sarah go beyond just friendship. He falls deeply in love with her, and she returns his feelings. The two of them get married and begin a new chapter in their lives together.
+
+ As they work to protect the internet and defend Frantech, The Pony and Sarah continue to support and challenge each other. They are a formidable team, and they are determined to keep the internet safe and secure for all who use it.
+
+ In the end, The Pony and Sarah's love and determination to protect the internet are a testament to the power of teamwork and the importance of standing up for what is right. Together, they are able to achieve great things and make the internet a better and safer place for all.
+
+ In a tragic turn of events, Sarah is kidnapped and killed by The Glowies. The news of her death devastates The Pony, and he is consumed by grief and anger.
+
+ He becomes a vindictive person, consumed by his desire for revenge against The Glowies. He spends all of his time and energy learning every hacking technique he can, determined to take down The Glowies and avenge Sarah's death.
+
+ But as he becomes more and more focused on his revenge, The Pony starts to lose sight of who he is and what he stands for. He becomes ruthless and unforgiving, and he is willing to do whatever it takes to defeat The Glowies.
+
+ His actions begin to alienate him from his friends and allies, and he finds himself increasingly isolated. But he is determined to see his plan through to the end, no matter the cost.
+
+ In the end, The Pony is able to track down The Glowies and launch a massive attack against them. He is able to take down their networks and disrupt their operations, but at what cost?
+
+ The Pony has become a shadow of his former self, consumed by his desire for revenge. He has lost sight of the things that once mattered to him, and he is left alone and hollow.
+
+ In the end, The Pony is forced to confront the emptiness of his actions and the futility of his vendetta. He realizes that Sarah's death cannot be undone, and that the only way to truly honor her memory is to move on and live a life of meaning and purpose.
+
+ The Pony takes this lesson to heart, and he begins to rebuild his life and reconnect with his friends and allies. He finds solace in the knowledge that he has made the internet a safer and more secure place, and that he has fulfilled Sarah's legacy by protecting the things she cared about most.
+
+# ending 
+
+ In the final episode of the anime, Francisco returns as a spirit to visit The Pony. He has been watching over The Pony from the afterlife, and he is proud of all that he has accomplished.
+
+ Francisco tells The Pony that he has done an excellent job of protecting the legacy of Frantech and keeping the company at the forefront of the hosting industry. He is grateful for The Pony's dedication and determination, and he knows that Frantech is in good hands.
+
+ But Francisco also reminds The Pony of the importance of staying true to his own principles and values. He tells The Pony that it is easy to get caught up in the pursuit of power and success, but that it is even more important to stay true to oneself and to fight for what is right.
+
+ The Pony is moved by Francisco's words, and he realizes that he has strayed from the path that Francisco laid out for him. He has become consumed by his desire for revenge, and he has lost sight of the things that matter most.
+
+ But with Francisco's guidance, The Pony is able to find his way back to the right path. He rededicates himself to protecting the internet and upholding the principles of freedom and innovation that Francisco fought for all of his life.
+
+ In the end, The Pony is able to find peace and fulfillment in his work at Frantech. He knows that he has honored Francisco's legacy, and that he has made the internet a better and safer place for all. And with that knowledge, he is able to move forward and continue the fight for a better tomorrow.
+
+ As the anime comes to a close, Francisco tells The Pony that he is ready to become the Frantech Stallion. He tells The Pony the legend of the Frantech Stallion, and how it represents the highest ideals of the company and the internet.
+
+ The Frantech Stallion is a symbol of strength and courage, of innovation and determination. It represents the best of what Frantech stands for, and it is the embodiment of the company's mission to protect the internet and keep it free and open for all.
+
+ Francisco tells The Pony that he has proven himself to be a worthy successor to the Frantech Stallion, and that he is ready to take on the mantle of leadership and continue the fight for a better and more secure internet. 
+
+ The Pony is moved by Francisco's words, and he knows that he is ready to take on this new challenge. He is determined to live up to the legend of the Frantech Stallion, and to protect the internet for all time.
+
+ As the anime comes to an end, we see The Pony and Francisco walking together towards the Frantech datacenter. They are surrounded by a sense of purpose and determination, and they are ready to take on whatever challenges come their way.
+
+ An epic music plays in the background, highlighting the importance of their mission and the strength of their bond. The Pony and Francisco are the Frantech Stallions, and they are ready to take on the world.
+
+# opening music
+
+In a world of data and technology
+
+Where the internet is the key
+
+We stand tall and proud
+
+Defending freedom and innovation
+
+We are the Frantech Stallions
+
+Fighting for the internet
+
+Against the forces that seek to do it harm
+
+We will never give up the fight
+
+For we are the Frantech Stallions
+
+And we will protect the internet for all time
+
+With our skills and determination
+
+We will stand strong and never falter
+
+For we are the Frantech Stallions
+
+And we will keep the internet free and open for all.
+
+# ending music 
+
+We are the Frantech Stallions
+
+Fighting for the internet
+
+Defending freedom and innovation
+
+With our skills and determination
+
+We stand against the forces of darkness
+
+And we will never give up the fight
+
+We are the Frantech Stallions
+
+And we will protect the internet for all time
+
+With our hearts and minds united
+
+We will stand strong and never falter
+
+For we are the Frantech Stallions
+
+And we will keep the internet free and open for all.
