@@ -1,5 +1,7 @@
 Here is a PHP doorway generator script that allows the user to specify the keywords and includes additional SEO techniques:
+
 ```
+
 <?php
 // Get the target website and keywords from the user
 $target_website = readline("Enter the target website: ");
@@ -55,6 +57,7 @@ function generateRandomString() {
   
   return $string;
 }
+
 ```
   
 This script allows the user to specify the target website and keywords, which are then used to generate the doorway pages. The script also includes keyword stuffing and cloaking techniques to further improve the pages' search engine ranking.
