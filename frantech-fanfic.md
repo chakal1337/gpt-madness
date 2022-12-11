@@ -174,56 +174,74 @@
 
 # opening music
 
+Verse 1:
 In a world of data and technology
-
 Where the internet is the key
-
 We stand tall and proud
-
 Defending freedom and innovation
 
+Chorus:
 We are the Frantech Stallions
-
 Fighting for the internet
-
 Against the forces that seek to do it harm
-
 We will never give up the fight
 
-For we are the Frantech Stallions
-
-And we will protect the internet for all time
-
+Verse 2:
 With our skills and determination
-
 We will stand strong and never falter
-
 For we are the Frantech Stallions
+And we will keep the internet free and open for all
 
-And we will keep the internet free and open for all.
-
-# ending music 
-
+Bridge:
+We are the guardians of the internet
+Defending it from all who would do it harm
+We will never back down
 We are the Frantech Stallions
 
+Chorus:
+We are the Frantech Stallions
 Fighting for the internet
+Against the forces that seek to do it harm
+We will never give up the fight
 
+# ending music
+
+Verse 1:
+We look back on the days gone by
+When we fought for Frantech and the internet
+We stood tall and proud
 Defending freedom and innovation
 
-With our skills and determination
+Chorus:
+Frantech, Frantech
+We gave our all for you
+And though Francisco is no longer with us
+His legacy lives on through us
 
-We stand against the forces of darkness
+Verse 2:
+We built a legacy of strength and courage
+And we protected the internet from all who would do it harm
+But now the time has come for us to move on
+And though we will always remember Francisco
+We must continue the fight in his honor
 
-And we will never give up the fight
+Chorus:
+Frantech, Frantech
+We will carry on the fight
+For the internet and for Francisco
+We will never give up
 
-We are the Frantech Stallions
-
+Bridge:
+We may be without our leader
+But we will never be without hope
+For we are the Frantech Stallions
 And we will protect the internet for all time
 
-With our hearts and minds united
-
-We will stand strong and never falter
-
-For we are the Frantech Stallions
-
-And we will keep the internet free and open for all.
+Chorus:
+Frantech, Frantech
+We will carry on the fight
+For the internet and for Francisco
+We will never give up
+Frantech, Frantech
+We will always be grateful
+For the memories and the legacy that we carry on.
